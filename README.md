@@ -1,2 +1,0 @@
-# harshitaportfolio
-harshita portfolio
